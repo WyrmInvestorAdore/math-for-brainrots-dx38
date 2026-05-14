@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with stealth Scripts for math for brainrots, the #1 Script. Includes god mode and one-hit kill for
 
 
 
